@@ -9,5 +9,5 @@ taka średnie szczere mówiąc
 |:kissing_heart:|:imp:|:confounded:|
 |:smirk:|:angry:|:dizzy_face:|
 
-
+![budda.jfif](budda.jfif)
 [link do powitania](#id1)
