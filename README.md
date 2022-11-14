@@ -8,3 +8,6 @@ taka średnie szczere mówiąc
 |:heart_eyes:|:rage:|:persevere:|
 |:kissing_heart:|:imp:|:confounded:|
 |:smirk:|:angry:|:dizzy_face:|
+
+
+[link do powitania](#id1)
