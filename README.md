@@ -3,6 +3,7 @@ nie znajdziesz tu nic ciekawego
 ## Prognoza pogody
 taka średnie szczere mówiąc
 ### ciekawa tabela
+
 |:heart:|:fire:|:shit:|
 |-------|------|------|
 |:heart_eyes:|:rage:|:persevere:|
@@ -10,4 +11,5 @@ taka średnie szczere mówiąc
 |:smirk:|:angry:|:dizzy_face:|
 
 ![budda.jfif](budda.jfif)
+
 [link do powitania](#id1)
